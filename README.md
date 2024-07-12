@@ -18,7 +18,7 @@
 
 
 
-<img src="https://imgur.com/a/lhMoFg3">
+<img src="https://i.imgur.com/tBc9Fgu.png">
 
 # 🧠 Sobre
 
